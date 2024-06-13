@@ -16,6 +16,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 00001097698336SP@al.educacao.sp.gov.br
 
-![](https://media.tenor.com/EEsGwHVPdFgAAAAM/dog-smirk-dog.gif
+![](https://media.tenor.com/EEsGwHVPdFgAAAAM/dog-smirk-dog.gif).
 ![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
 
