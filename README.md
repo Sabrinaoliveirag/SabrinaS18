@@ -7,6 +7,7 @@ Meu nome é Sabrina de Oliveira Gomes
 - Moro atualmente em Jaci, interior de São Paulo
 
 Atualmente curso o terceiro ano do ensino médio
+
 Tenho interesse em me formar em psicologia
 
 Estou estudando na Alura
