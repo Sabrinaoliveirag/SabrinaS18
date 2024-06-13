@@ -2,9 +2,9 @@
 Boas vindas ao meu perfil💙💙
 
 Meu nome é Sabrina de Oliveira Gomes
-Tenho 17 anos
-Nasci em São Paulo capital
-Moro atualmente em Jaci, interior de São Paulo
+- Tenho 17 anos
+- Nasci em São Paulo capital
+- Moro atualmente em Jaci, interior de São Paulo
 
 Atualmente curso o terceiro ano do ensino médio
 Tenho interesse em me formar em psicologia
