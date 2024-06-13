@@ -17,3 +17,4 @@ Você pode entrar em contato comigo 📫
 00001097698336SP@al.educacao.sp.gov.br
 
 ![](https://media.tenor.com/EEsGwHVPdFgAAAAM/dog-smirk-dog.gif)
+![](https://tenor.com/bWxPM.gif)
